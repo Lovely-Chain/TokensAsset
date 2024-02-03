@@ -1,1 +1,0 @@
-Hello, please contact us to add your project's logo for testnet on the https://lovelyscan.com/tokens website. Telegram: https://t.me/lovely_chain
